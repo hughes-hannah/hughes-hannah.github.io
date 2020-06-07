@@ -10,4 +10,4 @@ Graduate Student and Sr. Financial Analyst
 
 ### Contact me
 
-[hannah.hughes@utdallas.edu](mailto:email@domain.com)
+[hannah.hughes@utdallas.edu](mailto:hannah.hughes@utdallas.edu)
