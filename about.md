@@ -6,7 +6,7 @@ permalink: /about/
 
 ### More Information
 
-Graduate Student and Sr. Financial Analyst
+Graduate Student and Sr. Analyst - M&A, Growth and Strategy
 
 ### Contact me
 
